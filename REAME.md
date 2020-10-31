@@ -1,0 +1,1 @@
+# Avaliação Oi – Desenvolvedor FULL STACK
